@@ -1,6 +1,6 @@
 
 
-![alt text](https://64.media.tumblr.com/4fd53703f8ab57414d485e9e9880e199/e224e9332c582064-8c/s1280x1920/cf11185c6bfcb9998543d846acb66b6526406e6a.jpg)
+![alt text](https://64.media.tumblr.com/34a88936af332bf6f13d6e96fa4d84a5/2b9454b20db79516-df/s2048x3072/145ec3c4574a942e79bea3f934723cc44ac65ec3.png)
 ##### ABOUT ME 🍫
   * I go by Seth, & sometimes Trish, Cio, or Ris
 * 19 years old, Bisexual & Genderfluid
