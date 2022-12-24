@@ -1,16 +1,16 @@
 
-<img src="https://64.media.tumblr.com/18a6406614b289397fbcc504c8816ede/tumblr_prnw2qtm7K1tqvsfso1_540.gif" width="360">
+<img src="https://media.tenor.com/Pd6mPecGNKMAAAAC/arrivederci-jojo.gif" width="360">
 
 
-##### ABOUT ME 🍫
-  * I go by Seth, & sometimes Trish, Cio, or Ris
+##### ABOUT ME 🎀
+  * I go by Seth, & sometimes Trish or Ris
 * 19 years old, Bisexual & Genderfluid
   * He/Him & She/Her only. Don't refer to me with feminine terms unless told otherwise.
-* DNI if you kin Trish Una, Risotto Nero, Caesar Zeppeli, Aki Hayakawa or Cioccolata
+* DNI if you kin Trish Una, Risotto Nero, Caesar Zeppeli, or Aki Hayakawa 
 * I use the term IRL on my Kins for fun, not because I fake disorders.
    * See carrd for extra stuff + more kins.
 
-##### Before You Interact 💉 
+##### Before You Interact 🍭 
   * I'm often off-tab/afk, whisper me instead.
 * Sitting with a friend as two characters doesn't always mean we are shipping them
 * You may sit and/or chat with me whenever you want, I'm not mean and won't complain and/or be rude about it like others do.
