@@ -1,5 +1,5 @@
 
-<img src="https://media.tenor.com/Pd6mPecGNKMAAAAC/arrivederci-jojo.gif" width="360">
+<img src="https://i.pinimg.com/originals/3a/d9/94/3ad99465e6e8bc4bfe63b7787a9c7509.gif" width="360">
 
 
 ##### ABOUT ME 🎀
