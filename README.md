@@ -16,5 +16,5 @@
 * You may sit and/or chat with me whenever you want, I'm not mean and won't complain and/or be rude about it like others do.
   * That being said, I am not comfortable with anybody below sixteen (16) being my friend. Please respect this.
 * I don't have a long DNI list, but DNI if you're heavily into drama, or if you're faking any mental disorders currently. (DID, Psychosis).
-    * I don't believe in, nor do I support TT/TD, I won't go out of my way to touch you but I definitely won't cater to you. 
+    * I don't believe in, nor do I support TT/TD, I won't go out of my way to ""touch"" you but I definitely won't cater to you. 
     
