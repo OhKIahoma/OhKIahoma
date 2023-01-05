@@ -3,7 +3,7 @@
 
 
 ##### ABOUT ME 🎀
-  * I go by Seth, & sometimes Trish or Ris
+  * I go by Seth, & sometimes Ris
 * 19 years old, Bisexual & Genderfluid
   * He/Him & She/Her only. Don't refer to me with feminine terms unless told otherwise.
 * DNI if you kin Trish Una, Risotto Nero, Caesar Zeppeli, or Aki Hayakawa 
