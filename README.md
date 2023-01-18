@@ -6,7 +6,7 @@
   * I go by Seth, & sometimes Ris
 * 19 years old, Bisexual & Genderfluid
   * He/Him & She/Her only. Don't refer to me with feminine terms unless told otherwise.
-* DNI if you kin Trish Una, Risotto Nero, Caesar Zeppeli, or Aki Hayakawa 
+* Don't mention it to me if you kin Trish Una, Risotto Nero, Caesar Zeppeli, or Aki Hayakawa 
 * I use the term IRL on my Kins for fun, not because I fake disorders.
    * See carrd for extra stuff + more kins.
 
